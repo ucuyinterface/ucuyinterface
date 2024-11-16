@@ -10,8 +10,26 @@ Ucuy doesn't believe Azusa, but by chance he realizes that he forgot about Azusa
 <br>
 <br>
 <br>
+<br>
+<br>
+<br>
+<br>
 
-  
+<div align="center">
+
+  [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31362nnl7k27s4q237x7kkhb7sfq&cover_image=true&theme=compact&show_offline=false&background_color=121212&interchange=false)](https://github.com/kittinan/spotify-github-profile)
+</div>
+
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
 
 <div align="center">
 
