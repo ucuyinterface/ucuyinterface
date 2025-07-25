@@ -1,4 +1,4 @@
-Ucuy (Burhannudin) is an UI/UX Designer. He falls in love with Azusa Oribe (Akari Hayami) at first sight and they begin to date. 
+Ucuy is an UI/UX Designer. He falls in love with Azusa Oribe (Akari Hayami) at first sight and they begin to date. 
 
 One day, Azusa tells Ucuy "people who meet me, forget about me several hours later."
 
